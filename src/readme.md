@@ -16,4 +16,4 @@ deban ser repudiados. y las molestias aceptadas. tutu
 lo tanto, el hombre sabio siempre se atiene en estas 
 materias a este principio de selección: rechaza los 
 placeres para asegurarse otros placeres mayores, o 
-bien sotututa dolores para evitar dolores peores.
+bien sotututa dolores para evitar dolores peores.dd
